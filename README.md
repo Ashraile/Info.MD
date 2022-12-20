@@ -4,7 +4,7 @@ From 2021.
 
 20/12/2022
 
-Both the many-worlds and quantum superposition coalescing theories are true. Our perception causes our 5D being to align with, or 'jump' to the universe whose vibrational frequency matches our perception. And our perception of reality quite literally becomes our new reality because we jump into the 5D (permutations of time) 'path' of the universe whose reality most closely matches our perception.
+Both the many-worlds and quantum superposition coalescing theories are true. Our perception causes our 5D being to align with, or 'jump' to the universe whose vibrational frequency matches our perception. And our perception of reality quite literally becomes our new reality because we jump into the 5D (permutations of time) 'path' or 'time string' of the universe whose reality most closely matches our perception.
 
 These mini vibration jumps are small, but over time they cause a butterfly effect. 
 
